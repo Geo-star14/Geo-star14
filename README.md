@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Preciousgeorge-chibuisi
+- 👀 I’m interested in Web development
+- 🌱 I’m currently learning Data Analytics,Web design and Excel 
+- 📫 How to reach me preciousgeorgechibuisi@gmail.com
